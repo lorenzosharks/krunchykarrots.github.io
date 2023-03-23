@@ -1,2 +1,2 @@
 # krunchykarrots.github.io
-my personal site
+yeetus deletus
